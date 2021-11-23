@@ -1,1 +1,0 @@
-# nthadtya.github.io
